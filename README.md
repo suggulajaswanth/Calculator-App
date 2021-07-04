@@ -11,4 +11,4 @@ GAME RULES:
 
 
 NOTE: FOR COMPLETE APP CONTACT ME
-*mail: suggulajaswanth@gmail.com
+*mail:* suggulajaswanth@gmail.com
